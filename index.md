@@ -4,14 +4,17 @@ I have included three different tests that represent me personally as well as so
 
 ### Myers–Briggs Type Indicator
 ![I'm not black I don't know how to change it](http://i.imgur.com/CrNC3Go.png)
+
 [Link to the full profile](https://www.16personalities.com/profiles/05a371d20f3f3)
 
 ### The Big Five Personality Test
 ![Big five](http://i.imgur.com/4LjGrGl.png)
+
 [Link to the full profile](https://i.imgur.com/U1wVOpj.jpg)
 
 ### Learning Style Test
 ![Learning](http://i.imgur.com/7PNuxLO.png)
+
 [Link to the full profile](http://i.imgur.com/vxlyZeV.png)
 
 ### What do the results of these tests mean for you?
