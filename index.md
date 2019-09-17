@@ -1,5 +1,11 @@
 ### Personality
 
+[Career goals and education](https://oliveryoungrmit.github.io/Career/)
+
+[Introduction](https://oliveryoungrmit.github.io/My-Profile/)
+
+[My Projects](https://oliveryoungrmit.github.io/Project-Idea/)
+
 I have included three different tests that represent me personally as well as some explanation for them.
 
 ### Myers–Briggs Type Indicator
